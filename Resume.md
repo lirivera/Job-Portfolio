@@ -24,12 +24,13 @@ Supervise and regulate research activities of external agencies within district:
 
 Capacity Building Intern October 2009 – May 2010
 Center for Hispanic Policy Advocacy, Providence, RI
-Implemented Best Practices:
+Identify and Address Organizational Needs:
 × Researched and identified education needs of Latino community in Providence; recommended, designed and implemented organization’s first "Parent Engagement" initiative.
-× Developed cross-agency collaborations with over 14 organizations and community leaders.
-Program Development:
-× Responsible for creation of parent education forum series designed to inform parents on school choice, English Language Learner Programs, and college readiness. Followed up with parent surveys and
+× Developed cross-agency collaborations with over 14 organizations and community leaders to strengthen organization's reach.
+Develop Program:
+× Responsible for creation of parent education forum series designed to inform parents on school choice, English Language Learner Programs, and college readiness.
 × Piloted public relations campaign; developed press releases, recorded bilingual public service announcements/radio interviews, and launched new initiative website.
+x Reached over 200 new parents throughout year; evaluation surveys demonstrated 95% of parents felt they gained useful information from series.
 
 Graduate Student Evaluator
 Providence Educational Excellence Coalition, Annenberg Institute of Reform May 2009
