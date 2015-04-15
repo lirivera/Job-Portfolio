@@ -8,23 +8,28 @@ Program evaluator with 5 years of data analysis and management experience seekin
 ##PROFESSIONAL EXPERIENCE
 **Manager of Research and Evaluation** June 2010 – Present (remotely since July 2011)
 School Board of Alachua County, Gainesville, FL
+
 *Evaluate impact of school board policies:*
 * Analyzed efficacy of 4 major district assessments; recommendations led to elimination of ineffective exam reducing time spent testing by 15%.
 * Evaluate district programs such as Head Start; report findings and recommendations.
 * Assist in the development and analysis of value-added personnel evaluation methods affecting over 500 teachers.
+
 *Produce reports and datasets:*
 * Manage data requirements of over 5 education grants such as Title X; assisted in simplifying data collection methods --eliminating potential errors in accountability data.
 * Facilitate metric-based decision making for over 10 district departments by providing leaders with over 200 customized datasets yearly.
 * Prepare and clean longitudinal secondary datasets and dictionaries for external research use.
+
 *Supervise and regulate research activities of external agencies within district:*
 * Evaluate over 50 research proposals yearly, ensuring adherence to IRB and district policies.
 * Designed new database for research applications and electronically streamlined approval process.
 
 **Capacity Building Intern** October 2009 – May 2010
 Center for Hispanic Policy Advocacy, Providence, RI
+
 *Identify and Address Organizational Needs:*
 * Researched and identified education needs of Latino community in Providence; recommended, designed and implemented organization’s first "Parent Engagement" initiative.
 * Developed cross-agency collaborations with over 14 organizations and community leaders to strengthen organization's reach.
+
 *Develop Program:*
 * Responsible for creation of parent education forum series designed to inform parents on school choice, English Language Learner Programs, and college readiness.
 * Piloted public relations campaign; developed press releases, recorded bilingual public service announcements/radio interviews, and launched new initiative website.
